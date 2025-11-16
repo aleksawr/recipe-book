@@ -52,3 +52,7 @@
    - Let the lasagna cool for 10-15 minutes before slicing.
    - Garnish with fresh basil leaves if desired.
    - Serve warm and enjoy!
+
+
+## Optional
+- you can substitute part of the ricotta with cottage cheese if you prefer a lighter texture.

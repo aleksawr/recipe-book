@@ -12,3 +12,4 @@
 - Drain the water and mash the potatoes.
 - Add butter and milk, and mix until smooth.
 - Season with salt and pepper to taste.
+- - Optional: garnish with chopped chives before serving.
